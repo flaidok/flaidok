@@ -1,5 +1,5 @@
 ### Hi there 👋
-
+Olá, sou Rosiely Flaidok tenho 18 anos, sou leonina ♌ minha personalidade é bastante forte 💪 tenho um dog chamado Theo 🐶 ele é bagunceiro mas eu o amo muito ❤️ sou uma pessoa caseira gosto de ficar em casa com minha família 👩‍👩‍👧‍👧 
 <!--
 **flaidok/flaidok** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
